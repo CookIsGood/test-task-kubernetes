@@ -56,7 +56,7 @@ spec:
 <img src='https://a.radikal.ru/a21/2201/d8/2cfec874a594.jpg'>
 
 ### Осмотр подов в графическом интерфейсе
-<img src='https://radikal.ru/lfp/d.radikal.ru/d27/2201/94/588c90b94b3f.jpg'>
+<img src='https://d.radikal.ru/d29/2201/4f/e2db93bf3d63.jpg'>
 
 ### Обзор кластера
 [тык](https://disk.yandex.ru/i/6x7Efr1aODlfzg)
